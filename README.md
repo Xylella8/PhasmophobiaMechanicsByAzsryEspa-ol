@@ -1,0 +1,1 @@
+# PhasmophobiaMechanicsByAzsryEspa-ol
